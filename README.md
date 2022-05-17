@@ -5,10 +5,7 @@ i am jack of all trades
 
 ## I can do everything
 
-And as **imagination** bodies forth,
-The forms of things *unknown*, the poet’s pen,
-Turns them to shapes and gives to airy nothing,
-A local *habitation* and a **name**.
+i  **stan patrick bateman** 
 
 - This is
 - an unordered
